@@ -1,0 +1,1 @@
+# 3d-tyt-kimya-soru-bankasi2022-32
